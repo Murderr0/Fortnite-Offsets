@@ -16,3 +16,6 @@ These are the latest fortnite offsets. I update these within a few hours of the 
 
 ## Please Star the Repo as I spend time getting these for you guys ❤️
 
+# JOIN MY DISCORD PLEASE :)
+
+https://discord.gg/XwbMG85wn6
